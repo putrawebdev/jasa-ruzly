@@ -1,3 +1,2 @@
 # jasa-ruzly
-jb merch jkt48
-jangan di colong 
+jb merch jkt48 
